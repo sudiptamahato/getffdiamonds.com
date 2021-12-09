@@ -1,0 +1,1 @@
+# getffdiamonds.com
